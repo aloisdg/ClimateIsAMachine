@@ -21,7 +21,7 @@ Lorsque tu ouvres la porte, tu ne trouves qu'un gigantesque et sombre vide sans 
 
 Epilogue:
 
-Aujourd'hui, nous sommes à un point où la deuxième bougie vient juste de s'éteindre. Les hamsters sont toujours fairly(?) actifs, les poissons sont encore en train de nager et seulement les plantes les plus fragiles montrent des signes de flétrissement. Tu ne fais pas encore vraiment attention, mais soudain tu remarques un bruit inhabituel que tu n'avais jamais entendu auparavant(?). Tu tends l'oreille et trouve la source de ce bruit. C'est un téléphone.
+Aujourd'hui, nous sommes à un point où la deuxième bougie vient juste de s'éteindre. Les hamsters sont toujours fairly(?) actifs, les poissons sont encore en train de nager et seulement les plantes les plus fragiles montrent des signes de flétrissement. Tu ne fais pas encore vraiment attention, mais soudain tu remarques un bruit inhabituel que tu n'avais jamais entendu auparavant. Tu tends l'oreille et trouve la source de ce bruit. C'est un téléphone.
 
 A l'autre bout du fil, il y a une personne qui te dit que quelque chose se passe très mal avec ta machine. Il te dit que tes animaux et tes plantes sont en train de mourir et que si tu ne fais rien maintenant tu ne pourras plus les sauver. (Tu jettes un coup d'oeil à tes animaux et à tes plantes et tout semble aller bien.)
 
