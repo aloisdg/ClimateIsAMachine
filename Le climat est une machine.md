@@ -1,6 +1,6 @@
 Ceci est une analogie dont le but est d'expliquer le processus et les principaux points du réchauffement climatique à un enfant de 5 ans:
 
-Imagine que le climat sur Terre est une gigantesque, compliquée, Mouse Trap Game/ Rube Goldberg Machine(?) développée pour arroser tes plantes, nourrir tes poissons et tes hamsters ainsi que régler le thermostat afin de conserver une température agréable dans la pièce.
+Imagine que le climat sur Terre est une gigantesque, complexe, machine de Rube Goldberg développée pour arroser tes plantes, nourrir tes poissons et tes hamsters ainsi que régler le thermostat afin de conserver une température agréable dans la pièce.
 
 Maintenant imagine que la machine tout entière est alimentée en énergie par la chaleur dégagée par des bougies de cire allumées, comme l'un de ces jeux de noël allemands.
 
@@ -12,7 +12,7 @@ Pendant ce temps, alors que les hamsters ne sont pas nourris suffisamment, leur 
 
 Les poissons ne sont plus nourris, les plantes flétrissent et les hamsters sont entièrement inactifs. En plus de tout ça, ta chambre commence à devenir trop chaude pour toi car la machine n'est plus en mesure d'ajuster le thermostat proprement et maintenant les quelques bougies toujours allumées sont en train de fondre à cause de la chaleur de la pièce. Bientôt la machine ne fonctionne plus du tout et tu es occupé à éteindre les petits feux qui ont démmarré (à cause) des bougies fondues.
 
-Des petites cactus(?) plantes survivent et il ne fait aucun doute que des microorganismes sont en train de manger tes poissons morts et tes hamsters, et de la moisissure grandi. De plus, des mouches ont gathered(9?). La vie n'a pas complètement disparu. C'est simplement une nouvelle forme de vie qui thriving(?) à cause de ce nouveau, uninteded(?) environemment.
+Des petites cactus(?) plantes survivent et il ne fait aucun doute que des microorganismes sont en train de manger tes poissons morts et tes hamsters, et de la moisissure grandi. De plus, des mouches se sont rassemblées. La vie n'a pas complètement disparu. C'est simplement une nouvelle forme de vie qui thriving(?) à cause de ce nouveau, uninteded(?) environemment.
 
 Tu tentes de réparer la machine, mais tu n'y arrives pas car tu n'es pas celui qui l'a construite et qu'elle est vraiment très compliquée. Les complexités s'emmêlent jusqu'au niveau microscopique. La réparer est complètement au dela ton niveau. À présent, l'endroit où tu as vécu toute ta vie est uncomfortably(?) chaude, a des insectes, de la moisissure et une odeur étrange. Tu ne peux plus vivre ici anymore(?), donc tu décides de faire ta valise et de déménager dans un nouvel endroit.
 
