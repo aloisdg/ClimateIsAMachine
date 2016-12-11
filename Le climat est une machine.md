@@ -10,7 +10,7 @@ Mais un jour, une de ces bougies gets blown out (?explose), et la machine commen
 
 Pendant ce temps, alors que les hamsters ne sont pas nourris suffisamment, leur niveau d'énergie est off(?au plus bas), et puisque la roue qu'ils tournaient alimentait le système qui s'occupe de remplacer les bougies. Ce système s'arrête également, une nouvelle bougie s'éteinds et maintenant la machine ne marche plus si bien.
 
-Les poissons ne sont plus nourris, les plantes sont wilting(?) noticeably(?) et les hamsters sont entièrement inactifs. En plus de tout ça, ta chambre commence à devenir trop chaude pour toi car la machine n'est plus en mesure d'ajuster le thermostat proprement et maintenant les quelques bougies toujours allumées sont en train de fondre à cause de la chaleur de la pièce. Bientôt la machine ne fonctionne plus du tout et tu es occupé à éteindre les petits feux qui ont démmarré (à cause) des bougies fondues.
+Les poissons ne sont plus nourris, les plantes flétrissent et les hamsters sont entièrement inactifs. En plus de tout ça, ta chambre commence à devenir trop chaude pour toi car la machine n'est plus en mesure d'ajuster le thermostat proprement et maintenant les quelques bougies toujours allumées sont en train de fondre à cause de la chaleur de la pièce. Bientôt la machine ne fonctionne plus du tout et tu es occupé à éteindre les petits feux qui ont démmarré (à cause) des bougies fondues.
 
 Des petites cactus(?) plantes survivent et il ne fait aucun doute que des microorganismes sont en train de manger tes poissons morts et tes hamsters, et de la moisissure grandi. De plus, des mouches ont gathered(9?). La vie n'a pas complètement disparu. C'est simplement une nouvelle forme de vie qui thriving(?) à cause de ce nouveau, uninteded(?) environemment.
 
@@ -21,7 +21,7 @@ Lorsque tu ouvres la porte, tu ne trouves qu'un gigantesque et sombre vide sans 
 
 Epilogue:
 
-Aujourd'hui, nous sommes à un point où la deuxième bougie vient juste de s'éteindre. Les hamsters sont toujours fairly(?) actifs, les poissons sont encore en train de nager et seulement les plantes les plus fragiles montrent des signes of wilt(?de faiblesse). Tu ne fais pas encore vraiment attention, mais soudain tu remarques un bruit inhabituel que tu n'avais jamais entendu auparavant(?). Tu tends l'oreille et trouve la source de ce bruit. C'est un téléphone.
+Aujourd'hui, nous sommes à un point où la deuxième bougie vient juste de s'éteindre. Les hamsters sont toujours fairly(?) actifs, les poissons sont encore en train de nager et seulement les plantes les plus fragiles montrent des signes de flétrissement. Tu ne fais pas encore vraiment attention, mais soudain tu remarques un bruit inhabituel que tu n'avais jamais entendu auparavant(?). Tu tends l'oreille et trouve la source de ce bruit. C'est un téléphone.
 
 A l'autre bout du fil, il y a une personne qui te dit que quelque chose se passe très mal avec ta machine. Il te dit que tes animaux et tes plantes sont en train de mourir et que si tu ne fais rien maintenant tu ne pourras plus les sauver. (Tu jettes un coup d'oeil à tes animaux et à tes plantes et tout semble aller bien.)
 
