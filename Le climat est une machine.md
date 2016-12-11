@@ -14,7 +14,7 @@ Les poissons ne sont plus nourris, les plantes sont wilting(?) noticeably(?) et 
 
 Des petites cactus(?) plantes survivent et il ne fait aucun doute que des microorganismes sont en train de manger tes poissons morts et tes hamsters, et de la moisissure grandi. De plus, des mouches ont gathered(9?). La vie n'a pas complètement disparu. C'est simplement une nouvelle forme de vie qui thriving(?) à cause de ce nouveau, uninteded(?) environemment.
 
-Tu tentes de réparer la machine, mais tu n'y arrives pas car tu n'es pas celui qui l'a construite et qu'elle est vraiment très complexe. Entrelacements upon(?) entrelacements s'emmêle jusqu'au niveau microscopique. La réparer est complètement au dela ton niveau. À présent, l'endroit où tu as vécu toute ta vie est uncomfortably(?) chaude, a des insectes, de la moisissure et une odeur étrange. Tu ne peux plus vivre ici anymore(?), donc tu décides de faire ta valise et de déménager dans un nouvel endroit.
+Tu tentes de réparer la machine, mais tu n'y arrives pas car tu n'es pas celui qui l'a construite et qu'elle est vraiment très compliquée. Les complexités s'emmêlent jusqu'au niveau microscopique. La réparer est complètement au dela ton niveau. À présent, l'endroit où tu as vécu toute ta vie est uncomfortably(?) chaude, a des insectes, de la moisissure et une odeur étrange. Tu ne peux plus vivre ici anymore(?), donc tu décides de faire ta valise et de déménager dans un nouvel endroit.
 
 Lorsque tu ouvres la porte, tu ne trouves qu'un gigantesque et sombre vide sans oxygène, ni chaleur. Il n'y a aucun autre endroit où aller.
 
